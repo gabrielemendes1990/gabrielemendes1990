@@ -2,7 +2,7 @@
 - 👀 I’m interested in financial planning
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on anything I can :D
-- 📫 How to reach me ...
+- 📫 How to reach me https://www.linkedin.com/in/gabriele-mendes-adorno-46719493/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm trying to transform my place in a urban jungle.
 
